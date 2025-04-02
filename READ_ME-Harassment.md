@@ -1,4 +1,4 @@
-# Wrestling Harassment Community Alert
+# Wrestling Harassment X Community Alert
 
 ## [ ISSUE SUMMARY ] 
 
@@ -50,10 +50,9 @@ https://x.com/milocold/status/1906730432449913323
 > **__VoiceOfTheMark's Approach__:** https://x.com/GANGSTAB0BB/status/1857456931767726280
 
 ## [ HOW CAN I HELP REMOVE THESE TOXIC ELEMENTS FROM MY COMMUNITY? ]
-
-> report for **__abuse__** and **__targeted harrasment__** at tweet level **__AND__** 
-> account level, plus **__bonus report for extra the credits__**!! 
-
+> report for abuse and targeted harrasment
+> at tweet level AND account level, plus
+> bonus report for extra the credits!! 
 ---
 
 ### TRIGGER WARNING!! TWEETS CONTAIN THE FOLLOWING:
