@@ -119,8 +119,6 @@ https://x.com/VoiceOfTheMarks/status/1907134400464031751
 
 https://x.com/VoiceOfTheMarks/status/1886743438361498082
 
-https://x.com/MadFlavorDabber/status/1906723928145588565
-
 https://x.com/VoiceOfTheMarks/status/1906739014247309553
 
 https://x.com/VoiceOfTheMarks/status/1907280031958659357
@@ -136,8 +134,6 @@ https://x.com/VoiceOfTheMarks/status/1906827488094716272
 ## [ PLEASE REPORT - @DrunkDriver71 TWEETS  ]  followers: 77
 
 https://x.com/DrunkDriver71/status/1907241550486139284
-
-https://x.com/milocold/status/1907228425972011344
 
 https://x.com/DrunkDriver71/status/1907237807787065533
 
