@@ -16,9 +16,9 @@
 >
 > This is NOT what the wrestling community needs. End his extended stay—this
 > isn't good business for anyone. Call him out, humble him, and give him a
-> chance to change.
+> chance to Change.
 >
-> Nothing changes if we just complain from the sidelines.
+> Nothing Changes if we just complain from the sidelines.
 
 ## [ WHY HELP? ] 
 
