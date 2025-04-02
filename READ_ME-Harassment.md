@@ -27,7 +27,7 @@
 > ways, maybe 🤷‍♂️
 >
 > Doing nothing can't be an option, this could easily happen to
-> you or a loved one. Make sure ppl know what they does, how
+> you or a loved one. Make sure ppl know what they do, how
 > they do it, and how to protect themselves from them.
 
 ## [ PROOF - DMS INTIALLY SENT FROM @VoiceOfTheMarks ]
