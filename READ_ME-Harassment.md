@@ -2,8 +2,10 @@
 
 ### [ ISSUE SUMMARY ] 
 
-> Hey yo! #IWC — See something, say something! Don't let this MAGA-level  
-> BS slide—no, no, that won't doooOOooo at all. Off with their heads!
+> Hey yo! #IWC — See something, say something! Don't let this maga style  
+> BS harassment slide—no, no, that won't doooOOooo at all.
+>
+> Off with their heads!
 >
 > @VoiceOfTheMarks is DMing & threatening members of IWC for following
 > @WWWEbotched's account, falsely accusing them of being predators with
