@@ -2,8 +2,9 @@
 
 ### [ ISSUE SUMMARY ] 
 
-> Hey yo! #IWC — See something, say something! Don't let this maga style  
-> BS harassment slide—no, no, that won't doooOOooo at all.
+> Hey yo! #IWC — See something, say something! Don't let this   
+> maga style BS harassment slide—no, no, that won't
+> doooOOooo at all.
 >
 > Off with their heads!
 >
