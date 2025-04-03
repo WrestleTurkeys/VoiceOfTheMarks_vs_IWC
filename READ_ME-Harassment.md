@@ -1,6 +1,6 @@
 # Wrestling Harassment X Community Alert
 
-## [ ISSUE SUMMARY ] 
+### [ ISSUE SUMMARY ] 
 
 > Hey yo! #IWC — See something, say something! Don't let this MAGA-level  
 > BS slide—no, no, that won't doooOOooo at all. Off with their heads!
@@ -20,7 +20,7 @@
 >
 > Nothing Changes if we just complain from the sidelines.
 
-## [ WHY HELP? ] 
+### [ WHY HELP? ] 
 
 > There should be no tolerance for maga bs in yer world, u can make
 > that happen. Humble him, give him a chance to grow, Change his
@@ -30,7 +30,7 @@
 > you or a loved one. Make sure ppl know what they do, how
 > they do it, and how to protect themselves from them.
 
-## [ PROOF - DMS INTIALLY SENT FROM @VoiceOfTheMarks ]
+### [ PROOF - DMS INTIALLY SENT FROM @VoiceOfTheMarks ]
 
 https://x.com/WrestleTurkeys/status/1906661143466463384
 
@@ -38,7 +38,7 @@ https://x.com/WrestleTurkeys/status/1906690576860537168
 
 https://x.com/milocold/status/1906730432449913323
 
-## [ CONFESSION ]
+### [ CONFESSION ]
 
 > So you get where I'm coming from—I'm no saint, but in unique situations,
 > you make choices. Mine follow my beliefs, and I accept the pain I cause
@@ -49,13 +49,13 @@ https://x.com/milocold/status/1906730432449913323
 >
 > **__VoiceOfTheMark's Approach__:** https://x.com/GANGSTAB0BB/status/1857456931767726280
 
-## [ HOW CAN I HELP REMOVE THESE TOXIC ELEMENTS FROM MY COMMUNITY? ]
+### [ HOW CAN I HELP REMOVE THESE TOXIC ELEMENTS FROM MY COMMUNITY? ]
 > report for abuse and targeted harrasment
 > at tweet level AND account level, plus
 > bonus report for the extra credits!! 
 ---
 
-### TRIGGER WARNING!! TWEETS CONTAIN THE FOLLOWING:
+#### TRIGGER WARNING!! TWEETS CONTAIN THE FOLLOWING:
 
 > "Hate", "Abuse & Harassment", "Violent Speech", 
 > "Privacy" Violations and "Suicide or Self-Harm" content**
@@ -67,7 +67,7 @@ https://x.com/milocold/status/1906730432449913323
 
 ---
 
-## [ DIFFERNET WAYS TO REPORT - ALL BEING BEST :D ]
+### [ DIFFERNET WAYS TO REPORT - ALL BEING BEST :D ]
 
 **__Different Ways to Report:__**
 
@@ -80,7 +80,7 @@ https://x.com/milocold/status/1906730432449913323
     Report user at account level **and** 
     Report user at **support level (A)** 
 
-### (A)[ REPORTING USER AT SUPPORT LEVEL ]
+#### (A)[ REPORTING USER AT SUPPORT LEVEL ]
 
 > Link for X Support's More Detailed Complaint Form
 >
@@ -108,11 +108,11 @@ https://help.twitter.com/en/forms
 
 5) Submit the form and monitor your email for a response.
     
-### NOTE:
+#### NOTE:
 
 **This form __allows for more detail than a standard in-app report__ and __is designed for complex issues__
 
-## [ PLEASE REPORT - @VoiceOfTheMarks TWEETS  ]  followers: 1670
+### [ PLEASE REPORT - @VoiceOfTheMarks TWEETS  ]  followers: 1670
 
 https://x.com/VoiceOfTheMarks/status/1907481860084535646
 
@@ -130,9 +130,9 @@ https://x.com/VoiceOfTheMarks/status/1906842315315871884
 
 https://x.com/VoiceOfTheMarks/status/1906827488094716272
 
-# ACCOUNTS ASSOCIATED WITH VOICEOFTHEMARKS HARASSING OTHERS
+## ACCOUNTS ASSOCIATED WITH VOICEOFTHEMARKS HARASSING OTHERS
 
-## [ PLEASE REPORT - @DrunkDriver71 TWEETS  ]  followers: 77
+### [ PLEASE REPORT - @DrunkDriver71 TWEETS  ]  followers: 77
 
 https://x.com/DrunkDriver71/status/1907241550486139284
 
@@ -144,7 +144,7 @@ https://x.com/DrunkDriver71/status/1907237690023510471
 
 https://x.com/DrunkDriver71/status/1907233371698188738
 
-## [ PLEASE REPORT - @MadFlavorDabber TWEETS  ] followers: 62
+### [ PLEASE REPORT - @MadFlavorDabber TWEETS  ] followers: 62
 
 https://x.com/MadFlavorDabber/status/1906723928145588565
 
@@ -160,9 +160,9 @@ https://x.com/MadFlavorDabber/status/1903645851421188466
 
 https://x.com/MadFlavorDabber/status/1903501401969344962
 
-# KNOWN TROLL ACCOUNTS ASSOCIATED WITH VOICEOFTHEMARKS HARASSING OTHERS
+## KNOWN TROLL ACCOUNTS ASSOCIATED WITH VOICEOFTHEMARKS HARASSING OTHERS
 
-## [ PLEASE REPORT - @YaBoyTPotato TWEETS  ]  followers: 213
+### [ PLEASE REPORT - @YaBoyTPotato TWEETS  ]  followers: 213
 
     [ ALTS ]
 
@@ -172,34 +172,37 @@ https://x.com/MadFlavorDabber/status/1903501401969344962
 
     https://x.com/YaBoyTPotato/status/1906722687424004593
 
-## [ PLEASE REPORT - @WWFCounselor TWEETS  ]  followers: 6632
+### [ PLEASE REPORT - @WWFCounselor TWEETS  ]  followers: 6632
 
     https://x.com/WWFCounselor/status/1899301724805828914
 
-## [ PLEASE REPORT - @GoatScape_ TWEETS  ]  followers: 122
+### [ PLEASE REPORT - @GoatScape_ TWEETS  ]  followers: 122
 
-## [ PLEASE REPORT - @KeemTheTruth TWEETS  ]  followers: 1118
+### [ PLEASE REPORT - @KeemTheTruth TWEETS  ]  followers: 1118
 
-## [ PLEASE REPORT - @GhostOfWWE TWEETS  ]  followers: 104
+### [ PLEASE REPORT - @GhostOfWWE TWEETS  ]  followers: 104
 
-## [ PLEASE REPORT - @TrosclairTweets TWEETS  ]  followers: 952
+### [ PLEASE REPORT - @TrosclairTweets TWEETS  ]  followers: 952
 
-## [ PLEASE REPORT - @NY_NativeJay TWEETS  ]  followers: 298
+### [ PLEASE REPORT - @NY_NativeJay TWEETS  ]  followers: 298
 
-## [ PLEASE REPORT - @WWWEBotched TWEETS  ]  followers: 49
+### [ PLEASE REPORT - @WWWEBotched TWEETS  ]  followers: 49
 
-## [ HASHTAGS TO USE IF YOU TWEET TO CALL THEM OUT ]
+### [ HASHTAGS TO USE IF YOU TWEET TO CALL THEM OUT ]
 
-    #AEWDynamite (solo focus) 20 minutes after show ends 
+    20 minutes after shows ends 
+
+> **check https://trends24.in/united-states/** 
+> prior for trending hashtags
     
-        **check https://trends24.in/united-states/ prior for trending hashtags**
-    
-## [ MORE HASHTAGS ]
+### [ MORE HASHTAGS ]
 
 > #IWC
 > #WWE
 > #AEW
+> #AEWDynamite
 > #GCW
+> #ECW
 > #wrestleUNIVERSE
 > #Wrestlemania41
 > #WrestlingTwitter
