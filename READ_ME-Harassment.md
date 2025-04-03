@@ -52,7 +52,7 @@ https://x.com/milocold/status/1906730432449913323
 ## [ HOW CAN I HELP REMOVE THESE TOXIC ELEMENTS FROM MY COMMUNITY? ]
 > report for abuse and targeted harrasment
 > at tweet level AND account level, plus
-> bonus report for extra the credits!! 
+> bonus report for the extra credits!! 
 ---
 
 ### TRIGGER WARNING!! TWEETS CONTAIN THE FOLLOWING:
