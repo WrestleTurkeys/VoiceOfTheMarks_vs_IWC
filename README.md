@@ -1,4 +1,4 @@
-# Wrestling Harassment X Community Alert
+# IWC Wrestling Anti-Harassment X Community Project
 
 ### [ ISSUE SUMMARY ] 
 
