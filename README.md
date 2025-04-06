@@ -165,6 +165,32 @@ https://x.com/MadFlavorDabber/status/1907675400131711484
 
 https://x.com/MadFlavorDabber/status/1906723928145588565
 
+https://x.com/MadFlavorDabber/status/1906718901892939844
+
+https://x.com/MadFlavorDabber/status/1905746184905601113
+
+https://x.com/MadFlavorDabber/status/1905141611648180427
+
+https://x.com/MadFlavorDabber/status/1903645851421188466
+
+https://x.com/MadFlavorDabber/status/1903501401969344962
+
+https://x.com/MadFlavorDabber/status/1908272789792186826
+
+https://x.com/MadFlavorDabber/status/1908314030667976833
+
+https://x.com/MadFlavorDabber/status/1908547750947676208
+
+https://x.com/MadFlavorDabber/status/1908562794922074266
+
+https://x.com/MadFlavorDabber/status/1908680040243687469
+
+https://x.com/MadFlavorDabber/status/1908538717712859467
+
+https://x.com/MadFlavorDabber/status/1907675400131711484
+
+https://x.com/MadFlavorDabber/status/1906723928145588565
+
 https://x.com/MadFlavorDabber/status/1907248794066092542
 
 https://x.com/MadFlavorDabber/status/1906718901892939844
