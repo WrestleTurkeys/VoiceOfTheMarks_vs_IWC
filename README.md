@@ -149,6 +149,20 @@ https://x.com/DrunkDriver71/status/1907233371698188738
 
 ### [ PLEASE REPORT - @MadFlavorDabber TWEETS  ] followers: 62
 
+https://x.com/MadFlavorDabber/status/1908272789792186826
+
+https://x.com/MadFlavorDabber/status/1908314030667976833
+
+https://x.com/MadFlavorDabber/status/1908547750947676208
+
+https://x.com/MadFlavorDabber/status/1908562794922074266
+
+https://x.com/MadFlavorDabber/status/1908680040243687469
+
+https://x.com/MadFlavorDabber/status/1908538717712859467
+
+https://x.com/MadFlavorDabber/status/1907675400131711484
+
 https://x.com/MadFlavorDabber/status/1906723928145588565
 
 https://x.com/MadFlavorDabber/status/1907248794066092542
